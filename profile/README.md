@@ -1,5 +1,5 @@
 
 ## Hi there 👋
- 
+A useless organization, or we don't know:)
 ______________________________________________________________________________________________________________________________________
 <img width="672" height="377" alt="image" src="https://github.com/user-attachments/assets/221667a2-c3f4-4367-8686-da497f90e089" />
